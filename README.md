@@ -22,7 +22,7 @@ When I’m not coding, I explore UI/UX design, read tech blogs, and connect with
 ## 📫 Contact Me
 
 - 📧 [akhenatenjama88@gmail.com](mailto:akhenatenjama88@gmail.com)
-- 🌐 [My Portfolio Website(https://sites.google.com/view/myfavouritewebsite/home)
+- 🌐 [My Portfolio Website(https://sites.google.com/view/akhenatenjamaswebsite/home)
 
 ---
 
